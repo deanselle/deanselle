@@ -1,8 +1,7 @@
-$${\color{default}look \space at \space my \space stupid \space harveyyy \space }$$
+![](https://files.catbox.moe/ru4cd9.png)
 
-![harveyyy hahaaa](https://files.catbox.moe/4vpl60.png)
-![harvey but stypid](https://files.catbox.moe/drvx23.png)
+![](https://files.catbox.moe/4bq6t3.png)
 
-$${\color{default}and \space this \space too \space ig }$$
+$${\color{default}ty \space onyxgpt }$$
 
-![](https://files.catbox.moe/0ytfnn.png)
+![](https://files.catbox.moe/uzvyi2.png)
