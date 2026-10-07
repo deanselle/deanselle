@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://blinkies.cafe/?s=0032-coffeecup">
+  <img src="https://files.catbox.moe/0djxdv.gif" width="100%">
 </p>
 
 <p align="center">
