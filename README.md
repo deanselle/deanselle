@@ -1,4 +1,8 @@
 <p align="center">
+  <img src="https://blinkies.cafe/?s=0032-coffeecup">
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/sv6kpy.jpeg">
 </p>
 
