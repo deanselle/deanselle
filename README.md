@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href="https://konyanku.straw.page">s𝗍r𝚊ᥕ⍴𝚊𝚐𝚎</a>
+  <a href="https://konyanku.straw.page">s𝗍r𝚊ᥕ⍴𝚊𝚐𝚎</a>⠀⠀⑅ ⠀⠀<a href="https://rentry.co/gustow">r𝚎ᥒ𝗍ry</a>
 </p>
 
 <p align="center">
